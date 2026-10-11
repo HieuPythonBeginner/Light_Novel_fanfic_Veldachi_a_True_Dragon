@@ -1,6 +1,6 @@
-**## Volume 4: Những cuộc gặp gỡ bạn bè mới**
+## Volume 4: Những cuộc gặp gỡ bạn bè mới
 
--------------------------------------
+---
 
 Sau khi quyết định dọn xuống mê cung sống cùng Veldora, bốn anh em bắt đầu khám phá nơi ở mới của mình. Dù đã nghe Veldora kể sơ qua về nơi này, họ vẫn chưa thực sự biết mê cung của Rimuru rộng lớn đến mức nào.
 

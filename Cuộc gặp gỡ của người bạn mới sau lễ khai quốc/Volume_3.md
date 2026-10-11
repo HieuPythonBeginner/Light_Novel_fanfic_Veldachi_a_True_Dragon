@@ -1,9 +1,10 @@
-**## Volume 3: Quyết định của bốn anh em**  
+## Volume 3: Quyết định của bốn anh em
+
 < [Xin lỗi lần nữa, tôi, Veldachi đây không biết ghi tiêu đề nào nên ghi đại]>
 < [Ngu quá nên không biết ghi gì chứ gì?] >
 < [im!] >
 
--------------------------------------
+---
 
 Sau một lúc thì Veldora Tempest đã hỏi cả bốn đứa em.
 

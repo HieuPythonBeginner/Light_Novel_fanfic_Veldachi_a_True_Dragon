@@ -1,4 +1,6 @@
-### Volume 7: Những giấc mộng kỳ lạ
+## Volume 7: Những giấc mộng kỳ lạ
+
+---
 
 Có lẽ người ta chỉ biết Veldachi như một con rồng ham chơi, nhưng đâu ai ngờ rằng nó có một bản ngã khác tồn tại độc lập. Kẻ đó cũng từng là Veldachi, nhưng đã bị nhấn chìm trong nỗi tuyệt vọng và cô đơn đến mức chỉ còn biết tìm kiếm sự phá hủy để mua vui cho bản thân.
 

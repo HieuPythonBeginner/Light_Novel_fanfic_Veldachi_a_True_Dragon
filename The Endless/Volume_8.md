@@ -1,4 +1,6 @@
-### Volume 8: Những bí ẩn chưa có lời giải đáp
+## Volume 8: Những bí ẩn chưa có lời giải đáp
+
+---
 
 sáng hôm sau, khi Doble, Meglax và Mizaru đều tỉnh dậy thì chỉ có mình Veldachi là thứ nguyên đêm do gặp Velchthonic nên cậu ta bây giờ đang mệt mỏi
 

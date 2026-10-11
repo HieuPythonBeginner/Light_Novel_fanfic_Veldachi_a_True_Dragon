@@ -1,4 +1,4 @@
-**## Volume 6: Gia đình của bốn anh em**
+## Volume 6: Gia đình của bốn anh em
 
 ---
 

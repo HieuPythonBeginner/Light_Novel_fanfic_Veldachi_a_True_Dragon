@@ -1,6 +1,6 @@
-**## Volume 1: Cuộc gặp gỡ bất ngờ với long chủng mới**
+## Volume 1: Cuộc gặp gỡ bất ngờ với long chủng mới
 
--------------------------------------
+---
 
 Sau lễ hội khai quốc của liên bang ma quốc Jura Tempest, có lẽ vì tò mò nên bốn anh em Long Chủng mới — Veldachi, Mizaru, Doble và Meglax — đã cùng nhau mò sang đây để khám phá.  
 

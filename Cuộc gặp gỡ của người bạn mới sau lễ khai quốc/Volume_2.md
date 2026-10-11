@@ -1,13 +1,15 @@
-**## Volume 2: Cuộc tái ngộ gia đình**
+## Volume 2: Cuộc tái ngộ gia đình
 
--------------------------------------
+---
+
 [Những lời mà Veldachi và anh em của cậu muốn nói]
 
 > "Các độc giả thân mến~ nếu các vị thấy có vài tình tiết đi hơi nhanh thì cho tôi xin lỗi nhé?~ tôi không thích việc chờ đợi chút nào cả!~"
 > "Đấy chẳng phải là lời bao biện rằng mày lười thêm việc mày muốn gặp Veldora nhanh không Veldachi?"
 > "Im đi Doble!"
 > "Ồ~ bị chọc trúng tim đen nên tức à?~"
--------------------------------------
+
+---
 
 Sau một hồi lâu di chuyển thì cuối cùng cả đoàn cũng đã đến căn phòng của Veldora Tempest.
 
